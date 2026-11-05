@@ -1,2 +1,2 @@
 # Hitopa-platform
-Roblox rip off
+music is better with out ads
